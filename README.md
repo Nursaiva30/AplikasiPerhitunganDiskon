@@ -1,2 +1,2 @@
 # AplikasiPerhitunganDiskon
-Tugas 3-Nur Saiva Putri(2310010179)
+Tugas 3- Nor Aqifah (2310010196)
